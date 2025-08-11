@@ -1,2 +1,0 @@
-# studiobabayaga
-Studio Babayaga
